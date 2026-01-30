@@ -1,3 +1,1 @@
 Victor Figueroa, born and raised in Immokalee for the majority of my life, work expernices include customer service and a customer service representative and trade work as a carpenter. Management postions within bigger companys such as Cash America and currently in Autozone. I enrolled in the Computer Systems and Information Technology course to gain fundamental knowledge and hands on experince within the world of IT. My goal is to gain certificates that employers search for such as CompTIA A+, CompTIA Security+ and any other certificates that wiould help in my goal to become an IT Professinal.
-
-
